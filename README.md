@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Nora aka MerrowMoon or @hookedmermaid
+- 👋 Hi, I’m Nora aka Moondust or @hookedmermaid
 
 - 👀 I’m interested in gaming, worldbuilding, creative writing, and art. 
 
